@@ -29,9 +29,12 @@ O propósito de sua contrução foi proteger os estados e impérios chineses de 
 _Esculpida pelos ventos no meio das montanhas de tom avermelhado da Jordânia ao longo de milhares de anos, foi onde surgiu 
 Petra posivelmente estabelicida 312a.C, em sua auge abrigou cerca de 30 mil pessoas.Hoje é um dos principais sítios arqueológicos do mundo._
 
-**6° Machu Pichu **
+**6° Machu Pichu**
 
 _Uma cidade perdida do Império Inca, povoado entre os anos de 1450 e 1540, as familias cultivavam milho e batata porem deixaram
-a cidade antes da chegada dos espanhois. Seu acesso é possivel apartir de Peru. _
+a cidade antes da chegada dos espanhois. Seu acesso é possivel apartir de Peru._
 
+**7° Taj Mahal**
 
+_Um dos monumentos mais importantes, localizado na Índia Cidade de Agra; esculpido em marmore branco e pedras preciosas.
+Construido por um Imperador em homenagem a sua falecida esposa entre 1632 e 1653; declarado pela Unesco como patrimonio da Humanidade em 1983._
