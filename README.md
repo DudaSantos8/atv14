@@ -8,6 +8,14 @@ _Foi inaugurado em 12 de outubro de 1931 no Rio de Janeiro-Brasil;Possui 30 metr
 altura e 8 metros em sua base, seus braços estendidos chegam aos 28 metros, e é o ponto 
 turistico mais visitado do RJ._
 
-2°Chichén Itzá
+**2°Chichén Itzá**
+
 _Foi uma das principais cidades do povo Maia, contruida entre os séculos IX e XII e abandonada em 
 670d.C, fica localizada no México e tem cerca de 1,5 milhão de visitas anuais._ 
+
+**3°Coliseu**
+
+_Um suntuoso simbolo do Império Romano contruido em 72a.C pelo Imperador Vespasiano; foi 
+palco de combate entre gladiadores e batalhas com animais; Para quem vai a Roma é um ponto turistico obrigatório._
+
+
