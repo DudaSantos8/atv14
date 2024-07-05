@@ -18,4 +18,10 @@ _Foi uma das principais cidades do povo Maia, contruida entre os séculos IX e X
 _Um suntuoso simbolo do Império Romano contruido em 72a.C pelo Imperador Vespasiano; foi 
 palco de combate entre gladiadores e batalhas com animais; Para quem vai a Roma é um ponto turistico obrigatório._
 
+**4°Grande Muralha da China**
+
+_Sua contrução teve inicio no século 7a.C e continuaram por mais de 200 mil anos;
+Apesar de seus 21.196km de extensão tem vários pontos de visitação que podem ser acessadas de Pequim.
+O propósito de sua contrução foi proteger os estados e impérios chineses de invasões.
+
 
